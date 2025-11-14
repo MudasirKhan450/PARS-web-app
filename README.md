@@ -14,4 +14,4 @@ Followers List you can know
 
 AI predicts your post and will be putted in that category like the educational , about movies , finance etc which will improve user expirence to high level 
 
-IN SHORT : I can't describe each feature but it has every thing as in the tiktok , quora followers , following and such amazing features
+IN SHORT : I can't describe each feature but it has every thing by which user satisfies.
